@@ -1,16 +1,27 @@
-## Hi there 👋
 
-<!--
-**thedayshift/thedayshift** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
+https://github.com/user-attachments/assets/30761c96-93fa-4d16-96c1-da3b4daee888
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+video by mause.the.mouse on ig\
+⠀⠀\
+⠀⠀\
+[info](https://rentry.co/kennedyhouse)
+<details>
+<summary>ponytown stuff</summary>
+please c+h w/ me ALWAYS even if i have dni I DONT CAR EC+HW ITH MEPLEASE I NEED THIS
+  
+i am almost always offtab or in the editor . please w2i if you'd like to get my attention!
+
+I would prefer making friends who like phighting.. Sorrryyyyyyy.. it's literally just a brainworm special interest it's been infesting my brain for 3 years 
+
+I'M SEVENTEEN YEARS OLD IF UR 14 DNI DNI DNI DNI DNI
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=8f3200&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
+</p> 
