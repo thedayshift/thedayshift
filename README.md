@@ -18,6 +18,7 @@ I would prefer making friends who like phighting.. Sorrryyyyyyy.. it's literally
 
 I'M SEVENTEEN YEARS OLD IF UR 14 DNI DNI DNI DNI DNI
 
+I AM A MIRRORSHARING / KINDA REALLY SELECTIVE SHARING SWORD PHIGHTING YUMESHIPPER/SELFSHIPPER I DONT CARE SHUT UP LEAVE ME ALONE . IF YOURE UNCOMFORTABLE WITH THIS HIDE ME OR JUST NEVER INTERACT WITH ME OK?
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=8f3200&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
