@@ -1,6 +1,8 @@
 
+
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=thedayshift&style=flat&color=5f3591&label= hi )
 
 https://github.com/user-attachments/assets/b7af7b94-e10c-40c2-972d-26d845a6a25f
 
