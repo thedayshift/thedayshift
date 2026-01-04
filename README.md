@@ -21,7 +21,7 @@ i am almost always offtab or in the editor . please w2i if you'd like to get my 
 I would prefer making friends who like phighting.. Sorrryyyyyyy.. it's literally just a brainworm special interest it's been infesting my brain for 3 years 
 (although dsaf has been infesting it for even longer)
 
-I'M SEVENTEEN YEARS OLD IF UR 14 DNI DNI DNI DNI DNI
+I'm almost 18 dni if ur fourteen years OLLDDDDDDDDDDDD
 
 I AM A MIRRORSHARING / KINDA REALLY SELECTIVE SHARING SWORD PHIGHTING YUMESHIPPER/SELFSHIPPER I DONT CARE SHUT UP LEAVE ME ALONE . IF YOURE UNCOMFORTABLE WITH THIS HIDE ME OR JUST NEVER INTERACT WITH ME OK?
 
