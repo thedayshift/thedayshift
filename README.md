@@ -19,6 +19,7 @@ please c+h w/ me ALWAYS even if i have dni I DONT CAR EC+HW ITH MEPLEASE I NEED 
 i am almost always offtab or in the editor . please w2i if you'd like to get my attention!
 
 I would prefer making friends who like phighting.. Sorrryyyyyyy.. it's literally just a brainworm special interest it's been infesting my brain for 3 years 
+(although dsaf has been infesting it for even longer)
 
 I'M SEVENTEEN YEARS OLD IF UR 14 DNI DNI DNI DNI DNI
 
